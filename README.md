@@ -1,2 +1,3 @@
-- 👋 Hi, I’m Clover
+- 👋 Hi, I’m AVS aka Adityavardhan Singh
+- 
 - 
